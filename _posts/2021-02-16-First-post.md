@@ -4,7 +4,7 @@ published: true
 
 ## A New Post (one counting to infinity)
 
-(Thanks to [him](https://guzey.com/personal/why-have-a-blog/#how-to-start-a-blog))
+[Thanks to [him](https://guzey.com/personal/why-have-a-blog/#how-to-start-a-blog)]
 
 Well well well let's see where this goes.
 Scott claims that his number one tip for writing well is "just to transcribe your thoughts - as is - on paper". I will take this piece of advice as literal as possible - the consequences may tearn out to be pretty sloppy.
