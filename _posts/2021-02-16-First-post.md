@@ -7,7 +7,7 @@ published: true
 [Thanks to [him](https://guzey.com/personal/why-have-a-blog/#how-to-start-a-blog)]
 
 Well well well let's see where this goes.
-Scott claims that his number one tip for writing well is "just to transcribe your thoughts - as is - on paper". I will take this piece of advice as literal as possible - the consequences may tearn out to be pretty sloppy.
+Scott claims that his number one tip for writing well is "just transcribe your thoughts - as is - on paper". I will take this piece of advice as literal as possible - the consequences may tearn out to be pretty sloppy.
 
 Okay. 2:57 pm. 
 I am writing this only a few hours after I completed my exam in Linear Algebra. It didn't go as well as I expected which means I may need to redo the course which is a huge bummer. To balance things out, I just checked my email to dicover that I passed my set theory exam - what a relief.
