@@ -10,3 +10,4 @@ I feel that I'm not in a position to complain, for a number of reasons:
 2.I myself have a large number of (unrealized) capabilities.
 3.I am currently learning about the secrets of the universe (high-level mathematics). I can think freely about life and existence itself. My only Real drawback is my own understanding (i.e. I wish I had a higher IQ level).
 Still, I feel alone and with no purpose. I feel I'm being forced to do what I am currently doing ==> lack motivation (hey, I'm writing to you instead of actually preparing for my math exam in two weeks). I don't need to justify myself inorder to feel the way I'm feeling.
+I only need the courage to leap out of this, but to where? (Elisha-Of-The-Future-Where-Everyting-Is-Good please tell me, what should I do??)
